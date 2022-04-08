@@ -1,0 +1,1 @@
+# Detyra_e_dyte_rrjeta_kompjuterike
